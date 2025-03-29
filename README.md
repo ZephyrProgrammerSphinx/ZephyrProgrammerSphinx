@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ZephyrProgrammerSphinx
-- 👀 I’m interested in cubing
+- 👀 I’m interested in cubing and cubing and coding and coding...
 - 🌱 I’m currently learning the keyboard
 -  I’m looking to collaborate on a project called APTGuardians v-1.0
 - 📫 How to reach me by my gmail that is katiyarviplove@gmail.com
